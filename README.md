@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Thilak8080
 - 👀 I’m interested in learning about new things
-- 🌱 I’m currently studying in amrita 1st year
+- 🌱 I’m currently studying in amrita 3rd year
 - 💞️ I’m looking to collaborate on new people and improve my skills
 - 📫 How to reach me ...
 
